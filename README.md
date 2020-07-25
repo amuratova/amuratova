@@ -1,4 +1,4 @@
-atlassian solution engineer | gcp/firebase user | js/react coder | crypto enthusiast
+atlassian solutions engineer | gcp/firebase user | js/react coder | crypto enthusiast
 
 in ❤️ with cloud technologies
 
